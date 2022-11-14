@@ -1,3 +1,3 @@
-//hoping to later make something cool🥺//
+//hoping to later make something prettu cool🥺//
 
 -nj
